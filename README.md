@@ -14,7 +14,7 @@
 - [Four Seasons Forest](https://fourseasonsforest.wordpress.com/)
 - [Transcendental TLs](https://transcendentaltls.com/)
 - [loveeattea](https://sites.google.com/view/loveeattea2/home?authuser=0) [2](https://www.scribblehub.com/profile/220660/loveeattea/)
-  
+- [Vanish into Fiction](https://vanishintofiction.com/)  
 - [Belle's Repository](https://bellerepository.com/)
 - [Woopread](https://woopread.com/)
 - [NovelUtopia](https://novelutopia.site/)
