@@ -21,6 +21,7 @@
 - [RubyMaybe](https://rubymaybetranslations.com/)
 - [CitrusAurora](https://citrusaurora.com/)
 * [Foxaholic18](https://18.foxaholic.com/novel/)
+* [RainOfSnow 2](https://drizzlingink.com/ )
 
 
 
