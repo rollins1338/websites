@@ -27,12 +27,13 @@
 
 ---
 # 💎 PDF Database 
+
+1. [Anna's Archive](https://annas-archive.org)
+2. [Ebook Hunter](https://www.ebookhunter.net/)
+3. [OceanOfPDFs](https://oceanofpdf.com/)
 - [Elsicone](https://server.elscione.com/)
 - [JNovels and other stuff](https://nyaa.si/)
-- [OceanOfPDFs](https://oceanofpdf.com/)
-- [Anna's Archive](https://annas-archive.org/)
-- [PDFcofee](https://pdfcoffee.com/)
-
+  
 ---
 
 ## ⬇️ PDF & E-Book Downloaders and Converters
