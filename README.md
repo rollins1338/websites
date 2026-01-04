@@ -36,6 +36,8 @@
   
 ---
 
+- [Dark Romance DB](https://darkromancereads.com/)
+
 ## ⬇️ PDF & E-Book Downloaders and Converters
 
 *Tools and services for converting or accessing content in PDF format.*
