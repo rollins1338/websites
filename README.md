@@ -46,3 +46,37 @@
 - [PDF downloader](https://pdfdownloader.net)
 - [EPUB > PDF](https://www.onlineconverter.com/epub-to-pdf)
 ---
+
+
+
+
+
+
+
+
+
+T
+“	hat hairstyle doesn’t suit you,” the duke said.
+Layla was taken aback by his comment. It took her a moment to process what he had said. Once she did, she 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<img width="620" height="169" alt="image" src="https://github.com/user-attachments/assets/f92d0590-2037-4eb0-b2df-1f9211dedf8c" />
+
