@@ -1,3 +1,7 @@
+# Dramione Podfics
+- [Spreadsheet](https://docs.google.com/spreadsheets/d/1h57ZhH9gyulZP7uQj87J0dz_n98kdGtKbD5oPbF0hXs/edit?gid=1524160988#gid=1524160988)
+
+
 ## 🌐 Translated KNovel Reading Websites
 
 *Some of these could be down. Will add more in the future.*
